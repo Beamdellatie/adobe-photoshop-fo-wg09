@@ -1,4 +1,4 @@
-
+top Script for Adobe Photoshop for macOS - blend modes and AI upscaling is the best Adobe Photoshop for macOS script, featuring blend modes and AI upscaling. Safe, efficient, and
 
 
 
